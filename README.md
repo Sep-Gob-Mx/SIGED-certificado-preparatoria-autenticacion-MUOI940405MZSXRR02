@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MUOI940405MZSXRR02
+MUOI940405MZSXRR02
